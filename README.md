@@ -1,1 +1,1 @@
-Cap 1 finalizado
+Continuar do vídeo 28
